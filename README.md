@@ -5,6 +5,8 @@
 ## [logosmage Pinguinzi mix](https://mega.nz/file/e8wkCbRZ#v2axac9-HKWn9DGYQSW0JyZhywroWsnGvxbYq2NtxdE)
 ![screenshot016](https://user-images.githubusercontent.com/110307551/181996624-8e179899-c5ea-4afd-8d4c-d7d856f2a4f8.png)
 ## [logosmage Cyanogenoid mix](https://mega.nz/file/yk5EzaZA#hkWbn7G4UOgtjxV9AD6xCIr-U_f_rI2GiUJEoQhHbzU)
-![screenshot023](https://user-images.githubusercontent.com/110307551/182001980-9f1ce39f-1b05-43bd-af0d-2b50e1aae11f.png)
+![screenshot028](https://user-images.githubusercontent.com/110307551/182002579-58d9b7ff-01d4-4c50-ad15-b32d92bc1e07.png)
 ## [logosmage Aristia mix](https://mega.nz/file/XwAGzDjJ#_5rQKKsTEa0GtezdT8UqndAu5UmNSOPkG0STKNXe144)
-![screenshot022](https://user-images.githubusercontent.com/110307551/182002018-071dc3a8-c9aa-4c8c-a3e7-6f4ec0c65865.png)
+![screenshot026](https://user-images.githubusercontent.com/110307551/182002551-27c6a5eb-51ce-4c13-bea6-7b20e11f6960.png)
+
+
