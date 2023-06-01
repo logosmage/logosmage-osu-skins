@@ -1,5 +1,9 @@
 # logosmage osu! Skins :)
-
+## [Rafis x logosmage x Xooty](https://mega.nz/file/Hk5WAQyA#jQGfT900Bk3yxFBcfuoFtdg1WvqLoThcw2rHEFPWPEI)
+![screenshot180](https://github.com/logosmage/logosmage-osu-skins/assets/110307551/9005ecb2-bfdf-4710-a0f4-18d731e4187c)
+![screenshot162](https://github.com/logosmage/logosmage-osu-skins/assets/110307551/05165385-ae69-4056-8e8d-3f2aa28e7592)
+![screenshot178](https://github.com/logosmage/logosmage-osu-skins/assets/110307551/3d1bb7d0-1293-4f75-b767-0e8770db91f7)
+![screenshot179](https://github.com/logosmage/logosmage-osu-skins/assets/110307551/f8e5be67-a655-41af-a9b6-10ca6bf54a49)
 ## [logosmage (July 30, 2022)](https://mega.nz/file/fwY12KDL#awg3vO3SrijCI-Dg4c2kBthw1VOnPnOwvF7ZG59Sv0Y)
 ![screenshot014](https://user-images.githubusercontent.com/110307551/181994417-d58adfdf-0148-4a60-950d-036622f23cf0.png)
 ## [logosmage Pinguinzi mix](https://mega.nz/file/e8wkCbRZ#v2axac9-HKWn9DGYQSW0JyZhywroWsnGvxbYq2NtxdE)
